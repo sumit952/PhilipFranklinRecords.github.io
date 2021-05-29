@@ -1,2 +1,2 @@
-# PhilipFranklinRecords.github.io
+# PhilipFranklinRecords.com
 Music Making Company
